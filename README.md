@@ -130,7 +130,7 @@ This analysis is for **educational and portfolio purposes only**. Not investment
 ## 👤 Author
 
 **Osman Manay** — Applied Economist & Financial Analyst  
-[LinkedIn](https://linkedin.com/in/osman-manay-48b3171ba) · [GitHub](https://github.com/pars1905)
+[LinkedIn](https://linkedin.com/in/osman-m-48b3171ba) · [GitHub](https://github.com/pars1905)
 
 ---
 
